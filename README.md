@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @emrahgecili emrahgecili.github.io
+- 👋 Hi, I’m @emrahgecili
